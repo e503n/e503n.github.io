@@ -1,2 +1,2 @@
 # e503n.github.io
-public notes on shit we play for my boys
+public notes on shit i plays with my boys, currently destiny
